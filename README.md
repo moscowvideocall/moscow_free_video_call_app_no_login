@@ -1,9 +1,18 @@
-- 👋 Hi, I’m @moscowvideocall
-- 👀 I’m interested in ...Creating dating apps
-- 🌱 I’m currently learning ...nothing
-- 💞️ I’m looking to collaborate on ...russian moscow web api team
-- 📫 How to reach me ...Telegram @bx1official
+MOSCOW NO.1 DATING APP
 
-<!---
-moscow no 1 call to random app created by alex martin
---->
+THIS BIZNAX.COM IS A WEBSITE WHICH IS NOW THE ONLY SAFE AND
+FREE RANDOM CALL APP AND WEBSITE API WITH NO LOGIN REQUIRED.
+AND SAVE NO LOGS IN SERVER.
+
+Contact DEtails:
+
+TELEGRAM : https://t.me/@bx1official
+
+
+all the apps and website are avalible for free.
+full anonymous we dont share data to any third party even google.
+we dont need money we dont save logs in server
+all data End-To-End Encrypted.
+
+Welcome To Home Of anonymous.....!
+
